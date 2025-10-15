@@ -1,2 +1,2 @@
 # finnster
-hi click here for more
+hi click here https://clipitx.com/finnster for more
